@@ -3,7 +3,7 @@
 - ろうきしぃ
 ### Job
 - Mobile App Engineer in 🇯🇵
-### Old
+### Age
 - 23 (as of March 2022)
 ### Experience
 - Mobile App
